@@ -1,5 +1,6 @@
 # ManjaresNavidenos 
 ## morcilla
+https://www.top10puertorico.com/wp-content/uploads/2018/12/morcilla.jpg
 ### Ingredientes:
 -1 kg de cuero de cerdo
 - 400 gr de carne de cerdo
@@ -16,3 +17,5 @@
 - 2 metros de tripa vacuna calibre 45
 - Hilo para chorizo
 - Referencias:https://elportaldelchacinado.com/receta-de-morcilla-tradicional/ 
+### Pasos:
+1. 
