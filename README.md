@@ -5,3 +5,4 @@ HOLA!!! Soy Jorge. Soy un estudiante de escuela intermedia.
 - 🎮 Me gustan los video juegos 
 - 👓 Uso espejuelos para leer 
 - 🏀 Me gusta ver el balonsesto y mi equipo favorito es Los Angeles Lackers (LAL)
+- 📖🤮 I do not like reading 
